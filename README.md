@@ -2,6 +2,10 @@
 
 BRO WTH THEY BANNED ME IN DISCORD SERVER XDDDD THEY SCARED???
 
+
+[![im scared?](https://raw.githubusercontent.com/jq6/actic_injector/main/banned.PNG "im scared?")](https://raw.githubusercontent.com/jq6/actic_injector/main/banned.PNG "im scared?")
+
+
 roblox_injector actic --- actic is lying!!!
 Hello yeah this main.cpp is not leak just copy
 
