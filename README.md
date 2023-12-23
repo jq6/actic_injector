@@ -14,3 +14,8 @@ this is real inject:
 idk:
 
 [![why](https://raw.githubusercontent.com/jq6/actic_injector/main/wth-my-bro.PNG "why")](https://raw.githubusercontent.com/jq6/actic_injector/main/wth-my-bro.PNG "why")
+
+
+Heres my copy:
+
+[![same???](https://raw.githubusercontent.com/jq6/actic_injector/main/gottem.PNG "same???")](https://raw.githubusercontent.com/jq6/actic_injector/main/gottem.PNG "same???")
