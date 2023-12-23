@@ -1,4 +1,7 @@
 # actic_injector
+
+BRO WTH THEY BANNED ME IN DISCORD SERVER XDDDD THEY SCARED???
+
 roblox_injector actic --- actic is lying!!!
 Hello yeah this main.cpp is not leak just copy
 
